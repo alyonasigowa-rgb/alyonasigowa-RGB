@@ -38,7 +38,7 @@
 
 ## 📬 Контакты
 
-- 💬 Telegram: @Sigowa
+- 💬 Telegram: @Sigowa (https://t.me/@Sigowa)
 - ✉️ Email: aliona.sigowa@yandex.ru
 
 ---
